@@ -1,0 +1,1 @@
+Why It Fits Minecraft Perfectly: This design follows Mojang's classic philosophy of "solving player needs with organic mob mechanics (like Striders)". It fulfills the player fantasy of a "customized mobile base" through a system rich with emotional connection, profoundly deepening the ocean's vitality. Also, it fits Mounts of Mayhem update.
